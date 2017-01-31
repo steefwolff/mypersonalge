@@ -1,2 +1,2 @@
-# mypersonalge
-About me; my hobbies &amp; interests
+# mypersonalpage
+Strategic-creative goal-getter from corporate to start-up
